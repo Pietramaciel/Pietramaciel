@@ -13,4 +13,4 @@ pietra.maciel@escola.pr.gov.br
 @pietradiovanna__
 
 
-![](![image](https://github.com/Pietramaciel/Pietramaciel/assets/134937140/e4fff142-544c-479d-af44-605bf5afe305))
+![](https://tenor.com/pt-BR/view/koavminaj-koav-fuemejors-kylie-jenner-kylie-gif-21736001)

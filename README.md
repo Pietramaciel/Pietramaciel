@@ -13,4 +13,4 @@ pietra.maciel@escola.pr.gov.br
 @pietradiovanna__
 
 
-![](https://tenor.com/pt-BR/view/travis-scott-kylie-jenner-trylie-kylie-travis-gif-22013181)
+![](https://tenor.com/bhSAw.gif)
